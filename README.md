@@ -15,7 +15,9 @@ Welcome to my GitHub profile! I'm @rehankiw, a 19-year-old student currently stu
 
 ## Get in Touch
 
-- 📫 Feel free to reach out via [GitHub](https://github.com/rehankiw)
-
+- 📫 Feel free to reach out via
+  [GitHub](https://github.com/rehankiw)
+  [Instagram](https://instagram.com/rehanamrllh)
+  [Linkind]([https://github.com/rehankiw](https://www.linkedin.com/in/rayhan-amrullah-3a2741328/))
 Thanks for visiting my profile!
 
